@@ -1,1 +1,0 @@
-# shnoiken.github.io
